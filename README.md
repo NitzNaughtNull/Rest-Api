@@ -1,1 +1,1 @@
-# PierwszyProgram
+There is naught
